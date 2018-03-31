@@ -1,0 +1,2 @@
+# automat
+technology to averyone  
